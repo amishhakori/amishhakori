@@ -1,1 +1,1 @@
-# Olá, Eu sou a Amish :)
+# Olá, Eu sou Amish :)
