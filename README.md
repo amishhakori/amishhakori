@@ -2,7 +2,7 @@
 
 - 🌸 -  Looking to find me ( ?-end ) 
 - 🦋 - In metamorphosis
-- 🪐 - Technology and life science lover
+- 🪐 - Technology and science lover
 - 🦭 - Since 2004
 
 
